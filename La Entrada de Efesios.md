@@ -49,5 +49,3 @@ que estaban cerca:
 8 Porque por gracia sois salvos por la fe, y esto no de vosotros, es el don de Dios:
 
 9 No por obras, para que nadie se gloríe
-
-
