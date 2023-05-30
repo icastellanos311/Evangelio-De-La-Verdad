@@ -1,6 +1,6 @@
 # LA VIDA DEL APÓSTOL PABLO
 
-[Pablo de Tarso]([Pablo de Tarso - Wikipedia, la enciclopedia libre](https://es.wikipedia.org/wiki/Pablo_de_Tarso)), de nombre judío Saulo de Tarso o **Saulo Pablo**,​ y más conocido como **san Pablo** (Tarso (Turquía), Cilicia 5-10 d. C. Roma), 58-67, es llamado el «Apóstol de los gentiles», el «Apóstol de las naciones».
+[Pablo de Tarso]([Pablo de Tarso - Wikipedia, la enciclopedia libre](https://es.wikipedia.org/wiki/Pablo_de_Tarso)), de nombre judío Saulo de Tarso o **Saulo Pablo**,​ y más conocido como **san Pablo** (Tarso (Turquía), Cilicia 5-10 d. C. - 58-67 Roma),  es llamado el «Apóstol de los gentiles», el «Apóstol de las naciones».
 
 [Saulo]([Biografia de San Pablo de Tarso (biografiasyvidas.com)](https://www.biografiasyvidas.com/biografia/p/pablo.htm#:~:text=Adquiri%C3%B3%20as%C3%AD%20una%20s%C3%B3lida%20formaci%C3%B3n,lat%C3%ADn%2C%20hebreo%20y%20arameo).) (tal era su nombre hebreo) nació en el seno de una familia acomodada de artesanos, judíos fariseos de cultura helenística que poseían el estatuto jurídico de ciudadanos romanos. Después de los estudios habituales en la comunidad hebraica del lugar, Saulo fue enviado a Jerusalén para continuarlos en la escuela de los mejores doctores de la Ley, en especial en la del famoso rabino Gamaliel. Adquirió así una sólida formación teológica, filosófica, jurídica, mercantil y lingüística (hablaba griego, latín, hebreo y arameo).
 
