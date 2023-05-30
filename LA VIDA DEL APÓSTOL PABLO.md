@@ -31,7 +31,3 @@
 | 67 d.C.      | Muere en Roma.                                                                                                                              |
 
 ---
-
-
-
-
