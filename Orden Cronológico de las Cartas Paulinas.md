@@ -10,8 +10,6 @@
 
 3. 
 
-
-
 ## HECHOS <a name="id1"></a>
 
 CAPÍTULO 1
@@ -3993,5 +3991,3 @@ carta sea leída a todos los santos hermanos.
 Cristo, sea con vosotros. Amén.
 
 ---
-
-
